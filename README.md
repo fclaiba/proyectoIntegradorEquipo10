@@ -7,3 +7,12 @@ La oferta busca satisfacer la demanda de un consumidor de amplio rango de perfil
 Público objetivo:
     Nuestros buyer personas, se encuentran entre socios que se inician en el mundo del vino, y otros consumidores habituales que encuentran en el club la forma de obtener variedad de vinos seleccionados por especialistas y a un precio inferior al que lo conseguirían en comercios especializados. 
 Clave de negocio: Es de suma importancia obtener la confianza de los socios, que entiendan el esfuerzo del club por llevar propuestas diferenciales. 
+
+
+CINCO REFERENTES DEL MERCADO
+https://www.enogarage.com/catalog/category/view/s/tinto/id/615/
+https://www.tonelprivado.com/
+https://www.espaciovino.com.ar/ofertas
+https://vinotecaligier.com/
+https://bonvivir.com/
+
