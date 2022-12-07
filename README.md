@@ -16,3 +16,5 @@ https://www.espaciovino.com.ar/ofertas
 https://vinotecaligier.com/
 https://bonvivir.com/
 
+Tablero de Trello:
+https://trello.com/invite/proyectointegradordesarrollofullstackdigitalhouse/ATTI5ef9e9214fa5a0b5d979bfc13630fd02C864A49C
